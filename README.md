@@ -5,7 +5,7 @@
 
 
 
-**sff i like <3 (feel free to whisp me about them!!)
+**stuff i like <3 (feel free to whisp me about them!!)**
 
 
 *killer7* ☁️ *madomagi/magireco* ☁️ *FAITH* ☁️ *project moon* ☁️ *touhou* ☁️ *world of horror* ☁️ *creepypasta* ☁️ *yume nikki* ☁️ *analog horror* ☁️ *townlore* ☁️ *SCP* ☁️ *okegom* ☁️ *8eyes* ☁️ *irisu syndrome* ☁️ *FPS games* *(<3)* ☁️ *animal crossing*
