@@ -16,7 +16,7 @@ i really love cats, rainy weather, books, and gardening too <3
 
 ***before you interact***
 
-🌧️ - i have severe social anxiety and might not respond if you talk to me directly, it's nothing personal so please don't feel bad ;[
+🌧️ - i have pretty bad social anxiety and might not respond if you talk to me directly, it's nothing personal so please don't feel bad ;[
 
 🌧️ - i don't have a TT/TD! feel free to crown/cuddle/hide behind me :) 
 
