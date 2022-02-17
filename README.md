@@ -12,7 +12,7 @@
 
 *killer7* ☁️ *madomagi/magireco* ☁️ *FAITH* ☁️ *project moon* ☁️ *touhou* ☁️ *world of horror* ☁️ *creepypasta* ☁️ *yume nikki* ☁️ *analog horror* ☁️ *townlore* ☁️ *SCP* ☁️ *okegom* ☁️ *8eyes* ☁️ *irisu syndrome* ☁️ *FPS games* *(<3)* ☁️ *animal crossing*
 
-i really love cats, rainy weather, books, and gardening too <3
+i really love cats, rainy weather, drawing, books, and gardening too <3
 
 ***before you interact***
 
