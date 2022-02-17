@@ -1,11 +1,12 @@
-seiko / 17 / she/her
- 
- hi :) welcome to my profile!
- 
- i don't really have much to say so 
+- hi, I'm seiko ! 
+- she/her
+- 17
 
-stuff i like <3 (feel free to whisp me about them!!)
--
+
+
+
+**sff i like <3 (feel free to whisp me about them!!)
+
 
 *killer7* ☁️ *madomagi/magireco* ☁️ *FAITH* ☁️ *project moon* ☁️ *touhou* ☁️ *world of horror* ☁️ *creepypasta* ☁️ *yume nikki* ☁️ *analog horror* ☁️ *townlore* ☁️ *SCP* ☁️ *okegom* ☁️ *8eyes* ☁️ *irisu syndrome* ☁️ *FPS games* *(<3)* ☁️ *animal crossing*
 
