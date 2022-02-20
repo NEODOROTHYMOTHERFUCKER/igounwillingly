@@ -1,5 +1,7 @@
 🌈 - hi, I'm seiko ! 
 
+🌈 - indigenous 
+
 🌈 - she/her
 
 🌈 - 17
@@ -16,7 +18,10 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 ***before you interact***
 
-🌧️ - i have severe social anxiety and might not respond if you talk to me directly, it's nothing personal so please don't feel bad ;[
+🌧️ - i have severe social anxiety so I might not respond if you talk to me directly, it's nothing personal so please don't feel bad !
 
-🌧️ - i don't have a TT/TD! feel free to crown/cuddle/hide behind me :) 
+🌧️ - staring (especially quietly !!!) makes me really anxious, i'll probably move away if i don't know you too well :[
 
+🌧️ - sometimes i fall asleep while playing (i use an autoclicker) ' -' 
+
+🌧️ - i don't have any DNIs, just be nice!
