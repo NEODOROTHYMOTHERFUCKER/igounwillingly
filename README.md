@@ -27,7 +27,3 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 🌧️ - i don't have any DNIs or strict rules, just be a decent person ;;
 
 
-tw// medical stuff  
-
-🌧️ - i have heart problems so i'll need to get away from people for a while if i'm too anxious/overwhelmed :( 
-please respect my space if this happens
