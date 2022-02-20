@@ -24,4 +24,10 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 🌧️ - sometimes i fall asleep while playing (i use an autoclicker) ' -' 
 
-🌧️ - i don't have any DNIs or strict rules, just please be a decent person ;;
+🌧️ - i don't have any DNIs or strict rules, just be a decent person ;;
+
+
+tw// medical stuff  
+
+🌧️ - i have heart problems so i'll need to get away from people for a while if i'm too anxious/overwhelmed :( 
+please respect my space if this happens
