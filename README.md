@@ -24,4 +24,4 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 🌧️ - sometimes i fall asleep while playing (i use an autoclicker) ' -' 
 
-🌧️ - i don't have any DNIs, just be nice!
+🌧️ - i don't have any DNIs, just please be nice!
