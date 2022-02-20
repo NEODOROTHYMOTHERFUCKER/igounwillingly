@@ -1,7 +1,5 @@
 🌈 - hi, I'm seiko ! 
 
-🌈 - indigenous 
-
 🌈 - she/her
 
 🌈 - 17
