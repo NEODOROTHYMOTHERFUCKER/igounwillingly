@@ -20,7 +20,7 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 🌧️ - i have severe social anxiety so I might not respond if you talk to me directly, it's nothing personal so please don't feel bad !
 
-🌧️ - staring (especially quietly !!!) makes me really anxious, i'll probably move away if i don't know you too well :[
+🌧️ - staring makes me really anxious, i'll probably move away if i don't know you too well :[
 
 🌧️ - sometimes i fall asleep while playing (i use an autoclicker) ' -' 
 
