@@ -23,25 +23,3 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 🌧️ - sometimes i fall asleep while playing [i use an autoclicker] ' -' 
 
 🌧️ - i don't have any DNIs or strict rules, just be a decent person ;;
-
-
-
-***kinlist // doubles are okay!! <3***
-
-*madotsuki [yume nikki]*
-
-*iduberga [okegom]*
-
-*nataka [okegom]*
-
-*nekoko [yume miru kusuri]*
-
-*nepeta [homestuck]*
-
-*koishi [touhou]*
-
-*ayame [killer7]*
-
-*irisu [irisu syndrome]*
-
-*stalker girl [world of horror]*
