@@ -1,4 +1,4 @@
-🌈 - hi, I'm seiko ! 
+🌈 - hi, I'm midori ! 
 
 🌈 - she/her - they/them - it/its 
 
