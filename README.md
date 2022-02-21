@@ -1,6 +1,6 @@
 🌈 - hi, I'm midori ! 
 
-🌈 - she/her - they/them - it/its 
+🌈 - https://en.pronouns.page/@midorikawa
 
 🌈 - 17
 
