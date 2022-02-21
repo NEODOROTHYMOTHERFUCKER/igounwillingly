@@ -1,6 +1,6 @@
 🌈 - hi, I'm seiko ! 
 
-🌈 - she/her
+🌈 she/her - they/them - it/its 
 
 🌈 - 17
 
