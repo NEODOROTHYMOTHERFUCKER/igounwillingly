@@ -20,6 +20,19 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 🌧️ - staring makes me really anxious, i'll probably move away if i don't know you too well :[
 
-🌧️ - sometimes i fall asleep while playing [i use an autoclicker] ' -' 
+🌧️ - sometimes i fall asleep while playing [i use an autoclicker]  
 
 🌧️ - i don't have any DNIs or strict rules, just be a nice person ;;
+
+*kinlist ~*
+*doubles are welcome*
+
+*madotsuki (yume nikki)
+ayame (killer7)
+nepeta (homestuck)
+koishi (touhou)
+nataka (okegom)
+stalker girl (world of horror)
+iduberga (okegom)
+nekoko (yume miru kusuri)
+amy (FAITH)*
