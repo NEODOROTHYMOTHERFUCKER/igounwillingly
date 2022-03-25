@@ -24,7 +24,7 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 
 🌧️ - i don't have any DNIs or strict rules, just be a nice person ;;
 
-*kinlist ~*
+*! kinlist !*
 
 *doubles are welcome*
 
