@@ -27,12 +27,20 @@ i really love cats, rainy weather, drawing, books, and gardening too <3
 *kinlist ~*
 *doubles are welcome*
 
-*madotsuki (yume nikki)
-ayame (killer7)
-nepeta (homestuck)
-koishi (touhou)
-nataka (okegom)
-stalker girl (world of horror)
-iduberga (okegom)
-nekoko (yume miru kusuri)
-amy (FAITH)*
+*madotsuki (yume nikki)*
+
+*ayame (killer7)*
+
+*nepeta (homestuck)*
+
+*koishi (touhou)*
+
+*nataka (okegom)*
+
+*stalker girl (world of horror)*
+
+*iduberga (okegom)*
+
+*nekoko (yume miru kusuri)*
+
+*amy (FAITH)*
