@@ -12,8 +12,6 @@
 
 *killer7* ☁️ *madomagi/magireco* ☁️ *FAITH* ☁️ *project moon* ☁️ *touhou* ☁️ *world of horror* ☁️ *creepypasta* ☁️ *yume nikki* ☁️ *analog horror* ☁️ *townlore* ☁️ *SCP* ☁️ *okegom* ☁️ *8eyes* ☁️ *irisu syndrome* ☁️ *FPS games* ☁️ *animal crossing* ☁️ *the sims 2*
 
- + cats, drawing, books, and gardening
-
 ***before you interact***
 
 🌧️ - i have severe social anxiety so I might not respond if you talk to me directly, it's nothing personal so don't feel bad 
